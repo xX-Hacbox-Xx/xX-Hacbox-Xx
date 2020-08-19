@@ -13,7 +13,7 @@ Thank you for reading, friendly stranger!
 - 📫 How to reach me: email：hiackerbox@outlook.com
 - ⚡ Fun fact: My undergraduate major is materials science and engineering
 
-我是一个普通带学生，正在为转专业与生活对抗。
+我是一个普通带学生，正在与生活对抗。
 
 热衷于游戏设计，苦于自己的美术基础和就读专业。如果你愿意和我合作，我表示非常欢迎！
 
