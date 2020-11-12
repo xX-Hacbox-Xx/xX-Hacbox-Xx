@@ -4,7 +4,7 @@ I am a college student, and I am fighting against my life for changing my major.
 
 I am passionate about game design and suffer from my art foundation and major. If you are willing to cooperate with me, I welcome it very much!
 
-I want to transfer to a major of "Digital Media Art". This major that only art students can study will make me an engineering student spend an extra 2 years.
+I want to transfer to a major of "Digital Media Art". This major that only art students can study will make me, an engineering student, spend an extra 2 years.
 (must be transferred to the same college of "Industrial Design" before the second year To "Digital Media Art").
 
 But for the sake of dreams, delaying graduation for two years is nothing.
