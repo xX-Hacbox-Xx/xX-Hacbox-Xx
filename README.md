@@ -9,7 +9,7 @@ I want to transfer to a major of "Digital Media Art". This major that only art s
 
 But for the sake of dreams, delaying graduation for two years is nothing.
 
-If you want to get more information, please check my blog -[灰域行者的罐头盒](https://hacbox.studio)
+If you want to get more information, please check my blog -[灰域行者的罐头盒](https://hacbox.me)
 
 Thank you for reading, friendly stranger!
 
@@ -26,6 +26,6 @@ Thank you for reading, friendly stranger!
 
 但是为了梦想，延毕两年又算什么呢？
 
-如果你想了解更多，欢迎访问我的博客-[灰域行者的罐头盒](https://hacbox.studio)
+如果你想了解更多，欢迎访问我的博客-[灰域行者的罐头盒](https://hacbox.me)
 
 谢谢你的阅读，友善的陌生人！
