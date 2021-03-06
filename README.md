@@ -15,7 +15,7 @@ Thank you for reading, friendly stranger!
 
 - 🌱 I’m currently learning AHUT
 - 👯 I’m looking to collaborate on who are interested in game design and have a certain art foundation.
-- 📫 How to reach me: email：hiackerbox@outlook.com
+- 📫 How to reach me: email：Find@hacbox.me
 - ⚡ Fun fact: My undergraduate major is materials science and engineering
 
 我是一个普通带学生，正在与生活对抗。
