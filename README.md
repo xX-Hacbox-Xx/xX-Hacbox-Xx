@@ -13,7 +13,7 @@ If you want to get more information, please check my blog -[灰域行者的罐�
 
 Thank you for reading, friendly stranger!
 
-- 🌱 I’m currently learning AHUT
+- 🌱 I’m currently learning in Nanjing
 - 👯 I’m looking to collaborate on who are interested in game design and have a certain art foundation.
 - 📫 How to reach me: email：Find@hacbox.me
 - ⚡ Fun fact: My undergraduate major is materials science and engineering
